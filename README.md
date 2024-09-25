@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **codemaestro509@gmail.com**
 
-- ⚡ Fun fact **I am funny**
+- ⚡ Fun fact **I am good**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
